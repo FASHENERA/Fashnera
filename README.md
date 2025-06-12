@@ -1,2 +1,2 @@
 # Fashnera
-Fashnera dropshipping storw
+Fashnera dropshipping store
